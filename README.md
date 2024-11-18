@@ -178,8 +178,9 @@
 
 ![](https://github.com/reretel/itog_base/blob/master/scr/ot17.png)
 
+------------------------------------------------------------------------------
 
-
+![](https://avatars.dzeninfra.ru/get-zen_doc/9123373/pub_641712189968372b0ef574ba_64174eec9ae6211eb8b28476/orig)
 
 
 
